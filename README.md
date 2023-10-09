@@ -1,3 +1,3 @@
 # resss1
-I'm Mary
+I'm Mary Ozawa
 I'm a trader
