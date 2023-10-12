@@ -1,4 +1,4 @@
-FFor four days every October, New York City resembles something out of a science fiction movie – people dressed in elabourate, head-turning costumes pepper Manhttan's West Side. These superheroes, winged creatures and anime characters are all on their way to New York Comic Con, the US east coast's massive ode to comic books and entertainment.
+For four days every October, New York City resembles something out of a science fiction movie – people dressed in elabourate, head-turning costumes pepper Manhttan's West Side. These superheroes, winged creatures and anime characters are all on their way to New York Comic Con, the US east coast's massive ode to comic books and entertainment.
 
 The first New York Comic Con was held in 2006 with 33,000 attendees. Today, roughly 200,000 fans gather at the Jacob K Javits Convention Center, attending panels and swarming booths showcasing future releases in comics, video games and toys. Celebrity spottings are common: 2023's convention, which runs 12 to 15 October, will feature top names in entertainment, including Ewan McGregor and Chris Evans, who each played major characters in blockbuster films.
 
