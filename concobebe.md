@@ -1,7 +1,5 @@
-  Updated yesterday
-Quest
-[found](https://github.com/gomeo03/resss1/edit/main/concobebe.md)https://github.com/gomeo03/resss1/edit/main/concobebe.md
-Code
+FFor four days every October, New York City resembles something out of a science fiction movie – people dressed in elabourate, head-turning costumes pepper Manhttan's West Side. These superheroes, winged creatures and anime characters are all on their way to New York Comic Con, the US east coast's massive ode to comic books and entertainment.
 
-Blame
-3 lines (3 loc) · 148 Bytes
+The first New York Comic Con was held in 2006 with 33,000 attendees. Today, roughly 200,000 fans gather at the Jacob K Javits Convention Center, attending panels and swarming booths showcasing future releases in comics, video games and toys. Celebrity spottings are common: 2023's convention, which runs 12 to 15 October, will feature top names in entertainment, including Ewan McGregor and Chris Evans, who each played major characters in blockbuster films.
+
+Fans spend big to get in on the fun – for some, the total runs into the thousands when accounting for costumes, tickets, travel and merchandise (think an $18,000 life-size light-up Iron Man statue, or a $30 Thor-hammer meat tenderiser). It's worth it for the fans who return every year.
